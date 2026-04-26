@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور عيوني تعالي في حضني
+> نفسي أبقى عندك يا أجمل تمني
+> الليل بيشهد على نار شوقي
+> وقلبي بيكتب حكاية عشقي
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
